@@ -1,1 +1,0 @@
-# Ammonia-in-a-Double-Quantum-Well
